@@ -11,6 +11,7 @@ List of cafes I have been to that: I loved for their coffee/location/experience.
 -　カメラ
 -　ミメ
 - Kaido books & coffee
+- Farm to Park RACINES
 
 ## Osaka, JP
 - CAFE SIK
