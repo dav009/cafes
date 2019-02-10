@@ -12,6 +12,7 @@ List of cafes I have been to that: I loved for their coffee/location/experience.
 -　ミメ
 - Kaido books & coffee
 - Farm to Park RACINES
+- Cafe Eight
 
 ## Osaka, JP
 - CAFE SIK
